@@ -7,7 +7,7 @@ Want the latest RTP data, free spins access, trusted casino recommendations, and
 👉 Visit the full guide at [IceFishingStats.com](https://icefishingstats.com) for updated bonus offers, demo access, RTP analysis, and the latest Ice Fishing slot strategies for 2026.
 
 <a href="https://icefishingstats.com">
-<img src="https://r.resimlink.com/UKCpnqQPiu-.png" alt="Ice Fishing Stats Guide 2026 – Bonuses, RTP, Free Spins and Demo Access">
+<img src="https://r.resimlink.com/oFO1WBC.png" alt="Ice Fishing Stats Guide 2026 – Bonuses, RTP, Free Spins and Demo Access">
 </a>
 
 ---
